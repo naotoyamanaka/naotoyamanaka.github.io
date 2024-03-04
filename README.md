@@ -1,2 +1,1 @@
 # naotoyamanaka.github.io
-a
